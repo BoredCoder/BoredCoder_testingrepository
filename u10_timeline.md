@@ -1,6 +1,4 @@
-# Timeline
-
-## 1885-1950
+### 1885-1950
 
 **1880-1900**		European "scramble for Africa" [g]
 
